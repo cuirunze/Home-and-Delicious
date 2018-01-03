@@ -46,7 +46,7 @@ BP视频：大家都比较忙，队长自己瞎鼓捣的。
 
 ## 视频地址
 
-[百度云](https://pan.baidu.com/s/1qXZXDZQ) 密码: k21t
+[百度云](https://pan.baidu.com/s/1eRQOAGU)
 
 [腾讯视频]()还没传呢
 
